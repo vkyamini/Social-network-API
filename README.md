@@ -37,7 +37,7 @@ V.K Yamini
 
 ## 🔗 Links
 
-Recorded video: 
+Recorded video: https://drive.google.com/file/d/1oSmn0pmmldC94iySFU0mEh6RFAvC51Co/view
 
 GitHub name :vkyamini
 
